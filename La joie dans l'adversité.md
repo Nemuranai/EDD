@@ -9,6 +9,7 @@
 (9) Et voici ce que je demande dans mes prières: c’est que votre amour augmente de plus en plus en connaissance et en pleine intelligence (10) pour que vous puissiez discerner ce qui est essentiel. Ainsi vous serez purs et irréprochables pour le jour de Christ,
 (11) remplis du fruit de justice qui vient par Jésus-Christ à la gloire et à la louange de Dieu.
 ## Contexte
+Paul anciennement Saul de Tarse, est un pharisien juif, qui a été converti au christianisme. Il a été appelé par Jésus-Christ lui-même, et il a été envoyé par Jésus-Christ pour annoncer l'Evangile aux païens. Il a été le premier apôtre à aller en Europe, et il a fondé l'Eglise de Philippi. Il a été emprisonné à Rome, et il a écrit cette lettre à l'Eglise de Philippi, pour les encourager et les avertir de certains dangers.
 Paul à écrit l'épitre au Philippiens alors qu'il est emprisoné à cause de sa foi en Christ et pour avoir préché l'Evangile.
 ## Méditation
 A partir de là, on pourrais alors imaginer qu'au cours de cet épitre, Paul donne un résumé de sa situation, avec les différentes souffrance qu'il à pu subir, ou alors des lamentations sur son sort. Mais non, il commence par exprimer sa joie, sa reconnaissance et sa gratitude.
