@@ -14,8 +14,11 @@ Ici Paul est en prison à cause de sa foi en Christ et pour avoir préché l'Eva
 A partir de là, on pourrais alors imaginer qu'au cours de cet épitre, Paul donne un résumé de sa situation, avec les différentes souffrance qu'il à pu subir, ou alors des lamentations sur son sort. Mais non, il commence par exprimer sa joie, sa reconnaissance et sa gratitude. Il exprime sa joie de voir que les chrétiens de Philippes ont compris l'essentiel de l'Evangile, et qu'ils ont compris que la joie est une chose qui vient de Dieu, et non pas de notre situation.
 Au cours des versets 14 à 17 que certain Chrétiens par esprit de rivalité et par jalousie veulent rendre sa captivité encore plus pénible :
 > (14) Et la plupart des frères et sœurs, encouragés dans le Seigneur par mes chaînes, ont plus d'assurance pour annoncer sans crainte la parole.
-> (15) Certains, il est vrai, proclament Christ par jalousie, avec un esprit de rivalité, mais d'autres le proclament avec de bonnes intentions. (16) Les uns agissent par amour, sachant que je suis là pour la défense de l'Evangile; (17) les autres, animés d'un esprit de rivalité, annoncent Christ avec des intentions qui ne sont pas pures et avec la pensée d'augmenter les souffrances de ma détention.
+(15) Certains, il est vrai, proclament Christ par jalousie, avec un esprit de rivalité, mais d'autres le proclament avec de bonnes intentions. (16) Les uns agissent par amour, sachant que je suis là pour la défense de l'Evangile; (17) les autres, animés d'un esprit de rivalité, annoncent Christ avec des intentions qui ne sont pas pures et avec la pensée d'augmenter les souffrances de ma détention.
+
 Et bien, malgrès cela, Paul exprime sa joie a propos de sa situation. Au verset 12, il dit justement :
 > Je désire que vous le sachiez, frères et sœurs, ce qui m'est arrivé a plutôt contribué aux progrès de l'Evangile.
+
 Et au versets 18 et 19, il dit en parlent de ceux qui prèchent l'évangile par jalousie :
 > (18) Qu'importe? De toute manière, que ce soit pour de mauvaises raisons, que ce soit sincèrement, Christ est annoncé. Je m'en réjouis et je m'en réjouirai encore, (19) car je sais que cela aboutira à mon salut, grâce à vos prières et à l'assistance de l'Esprit de Jésus-Christ
+
