@@ -27,7 +27,7 @@ On remarque alors que Paul vois en sa situation une cause pour L'Evangile car ce
 On retrouve cette même idée dans Colossiens 1 v 24 :
 > Je me réjouis maintenant dans mes souffrances pour vous et je supplée dans ma vie à ce qui manque aux peines infligées à Christ pour son corps, c’est-à-dire l'Eglise.
 
-Paul à aussi éxprimé à Dieu le besoin d'être libéré d'une épreuve au cours du second épitre au Corinthiens chapitre 12 verset 8 et 9 :
+Paul à aussi éxprimé à Dieu le besoin d'être libéré d'une épreuve au cours du second épitre au Corinthiens au chapitre 12 verset 8 et 9 :
 > (8) Trois fois j'ai supplié le Seigneur de l'éloigner de moi, (9) et il m'a dit: «Ma grâce te suffit, car ma puissance s'accomplit dans la faiblesse.» Aussi, je me montrerai bien plus volontiers fier de mes faiblesses afin que la puissance de Christ repose sur moi. (10) C'est pourquoi je me plais dans les faiblesses, dans les insultes, dans les détresses, dans les persécutions, dans les angoisses pour Christ, car quand je suis faible, c'est alors que je suis fort.
 
 Contrairement à ce qu'on as pu voir au début, dans ce passage on remarque Paul à commencer par exprimer sa souffrance, sa détresse, et sa peine, et obtiens comme réponse de la part de Dieu : "Ma grâce te suffit, car ma puissance s'accomplit dans la faiblesse." c'est une réponse qui peu paraitre difficile à recevoir dans un premier temps, mais Paul s'en réjouit car il à foi en Dieu et en sa parole. Car en effet, la Joie ne vient pas de la libération de l'épreuve, mais de la foi en Dieu, et de la certitude que Dieu est avec nous, et qu'il est en contrôle de notre vie. Et c'est ce que Paul exprime dans le verset 10 :
