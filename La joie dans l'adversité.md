@@ -27,8 +27,7 @@ On remarque alors que Paul vois en sa situation une cause pour L'Evangile car ce
 On retrouve cette même idée dans Colossiens 1 v 24 :
 > Je me réjouis maintenant dans mes souffrances pour vous et je supplée dans ma vie à ce qui manque aux peines infligées à Christ pour son corps, c’est-à-dire l'Eglise.
 
-## Conclusion
-Pour conclure, Paul à éxprimé à Dieu le besoin d'être libéré d'une épreuve au cours du second épitre au Corinthiens chapitre 12 verset 8 à 10 :
+Paul à aussi éxprimé à Dieu le besoin d'être libéré d'une épreuve au cours du second épitre au Corinthiens chapitre 12 verset 8 à 10 :
 > (8) Trois fois j'ai supplié le Seigneur de l'éloigner de moi, (9) et il m'a dit: «Ma grâce te suffit, car ma puissance s'accomplit dans la faiblesse.» Aussi, je me montrerai bien plus volontiers fier de mes faiblesses afin que la puissance de Christ repose sur moi. (10) C'est pourquoi je me plais dans les faiblesses, dans les insultes, dans les détresses, dans les persécutions, dans les angoisses pour Christ, car quand je suis faible, c'est alors que je suis fort.
-
+## Conclusion
 Actuellement, je ne traverse pas une periode d'adversité. Au contraire, tout vas pour le mieux dans ma vie : travail, santé, famille, je suis aussi dans une période ou je grandis dans ma fois. Cependant, je pense qu'il est important de profiter de ces moments pour prendre du recul et de ce rappeler que la Joie se trouve également dans l'adversité car celle-ci viens de Christ et non de notre situation. Au cours de nôtre vie, nous avons et nous allons faire face à de nombreuses épreuves, mais si nous avons la foi en Christ, nous pouvons nous réjouir de ces épreuves car elles peuvent nous permettent de grandir dans notre foi et de faire connaître Christ.
