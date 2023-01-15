@@ -25,11 +25,20 @@ J'ai pas trouvé dans la bible de prophète qui ont remis totalement en cause l'
 * Jean 20:24-29
 > Thomas, appelé Didyme, l'un des douze, n'était pas avec eux lorsque Jésus vint. Les autres disciples lui dirent donc: Nous avons vu le Seigneur. Mais il leur dit: Si je ne vois dans ses mains la marque des clous, et si je ne mets mon doigt dans la marque des clous, et si je ne mets ma main dans son côté, je ne croirai point. Huit jours après, les disciples de Jésus étaient de nouveau dans la maison, et Thomas se trouvait avec eux. Jésus vint, les portes étant fermées, se présenta au milieu d'eux, et dit: La paix soit avec vous! Puis il dit à Thomas: Avance ici ton doigt, et regarde mes mains; avance aussi ta main, et mets-la dans mon côté; et ne sois pas incrédule, mais crois. Thomas lui répondit: Mon Seigneur et mon Dieu! Jésus lui dit: Parce que tu m'as vu, tu as cru. Heureux ceux qui n'ont pas vu, et qui ont cru!
 
-## Coclusion
-Il n'est pas surprenant de rencontrer des périodes de doute au cours de sa vie. 
+## Conclusion
+plusieurs facteur peuvent nous faire douter, que ce soit la science, les épreuves, la vie ou même nôtre entourage.
+Cependant il est important que tout ces aspect ne sont pas contraire à Dieu, par exemple pour la science, celle-ci ne peux contredire l'existence de Dieu. Je pourrais même citer  Einstein qui disait: "La science sans la religion est boiteuse, la religion sans la science est aveugle." ou encore Louis Pasteur qui disait: "Un peu de science éloigne de Dieu, beaucoup de science le rapproche."
+On peu aussi retrouver des raprochement avec la signification de ces citations dans la Bible.
+Romains 1:20 
+> "Car les perfections invisibles de Dieu, sa puissance éternelle et sa divinité, se voient comme à l'œil, depuis la création du monde, quand on les considère dans ses ouvrages."
+Dieu révèle sa présence à travers sa création, et il est possible de voir sa gloire dans tout ce qui nous entoure.
 
-La Bible nous dit dans Romains 1:20 : "Car les perfections invisibles de Dieu, sa puissance éternelle et sa divinité, se voient comme à l'œil, depuis la création du monde, quand on les considère dans ses ouvrages." Dieu révèle sa présence à travers sa création, et il est possible de voir sa gloire dans tout ce qui nous entoure.
+Comprendre Dieu
+Ésaïe 55:8-9
+> "Car mes pensées ne sont pas vos pensées, Et vos voies ne sont pas mes voies, dit l'Eternel. Autant les cieux sont élevés au-dessus de la terre, Autant mes voies sont élevées au-dessus de vos voies, Et mes pensées au-dessus de vos pensées."
+Dieu est au-delà de notre compréhension, et il est important de se rappeler que notre manière de penser est limitée en comparaison de la sienne.
 
-Dans Ésaïe 55:8-9, Il dit : "Car mes pensées ne sont pas vos pensées, Et vos voies ne sont pas mes voies, dit l'Eternel. Autant les cieux sont élevés au-dessus de la terre, Autant mes voies sont élevées au-dessus de vos voies, Et mes pensées au-dessus de vos pensées." Dieu est au-delà de notre compréhension, et il est important de se rappeler que notre manière de penser est limitée en comparaison de la sienne.
-
-Et enfin, Jean 20:29, "Jésus lui dit : Parce que tu m'as vu, tu crois. Heureux ceux qui croient sans avoir vu!" Dieu appelle à avoir la foi en lui, même si nous n'avons pas toutes les réponses ou preuves tangibles. C'est en ayant une relation personnelle avec lui que nous pouvons comprendre sa présence et son amour pour nous.
+La foi
+Jean 20:29
+> "Jésus lui dit : Parce que tu m'as vu, tu crois. Heureux ceux qui croient sans avoir vu!"
+Dieu appelle à avoir la foi en lui, même si nous n'avons pas toutes les réponses ou preuves tangibles. C'est en ayant une relation personnelle avec lui que nous pouvons comprendre sa présence et son amour pour nous.
